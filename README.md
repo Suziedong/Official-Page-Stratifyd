@@ -1,1 +1,0 @@
-# Official-Page-Stratifyd
